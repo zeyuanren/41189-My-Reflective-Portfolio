@@ -20,10 +20,14 @@ I’ve realised my strengths is my mental ability to stay focused through class 
 
 ### What were the challenges I have encountered/observed and how well (did I/my team) handle them?
 
+The challenge i faced was getting into the rhythm of this new semester and i will be making sure i stay organised and focussed throughout the course.
+
 ### What would I do better next time and with what anticipated results?
 
-### What theory proved to be useful and why? What have I learnt from this?
+I should definitely be more prepared and organised to ensure i absorb all the information this class has to offer which will definitely benefit me in the near future.
 
+### What theory proved to be useful and why? What have I learnt from this?
+I now have a general understanding of the theory behind complex systems and how it can be beneficial with its analysis and breakdowns of information
 
 
 ## Week 2 
