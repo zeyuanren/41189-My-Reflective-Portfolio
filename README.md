@@ -204,3 +204,41 @@ Definitely be more prepared so that we give ourselves more time to work together
 I now understand the concept behind the prisoner’s dilemma that the thought process of both parties can really vary and be unpredictable. This theory can really display the notion of altruism as two individuals may not cooperate which results in the least optimal outcome. 
 
 
+
+## Week 9
+
+### What have I learnt this week?
+This week was about working on our group portfolio and so we did not learn any new content. 
+
+### What do I ‘now know’ that I did not before?
+I now know that we have finished up on the content for this subject and that the rest of the semester, our focus will be on completing our GitHub report.
+
+### What insights have I gained?
+This week I’ve understood that I must improve myself to make sure this group can do well. I definitely need to pick up my pace soon or we will fall behind further.
+
+### What are (my/the) perceived strengths and weaknesses that I have observed?
+This week showed that I am easily able to lose focus as our work through class time was not very efficient. I also definitely struggle with being the person responsible for coordinating our group.
+
+### What were the challenges I have encountered/observed and how well did (I/My team) handle them?
+This week it was only one group member with me in class and it was very inefficient. I definitely should have messaged and checked up on our other group member to see if they would be joining and organising what we should part of our report we should be working on.
+
+### What would I do better next time and with what anticipated results?
+I should definitely try to coordinate the group better as it is my responsibility as a leader. This will help our group communication and so we will be able to decide on our work together.
+
+
+
+## Week 10
+
+### What have I learnt this week?
+This week was about working on our group portfolio and so we did not learn any new content. 
+
+### What are (my/the) perceived strengths and weaknesses that I have observed?
+This week was overall not bad. My strengths and weaknesses definitely still feel the same but I am still optimistic that there is improvement. 
+
+### What were the challenges I have encountered/observed and how well did (I/My team) handle them?
+This week’s challenges was sort of the same as last weeks but we were somewhat productive and got some work done. 
+
+### What would I do better next time and with what anticipated results?
+Again I still need to improve on myself by coordinating the group better and being responsible for the most part of our group. This is something I am working on and definitely be better at in the near future.
+
+
