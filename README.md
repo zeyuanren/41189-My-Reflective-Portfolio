@@ -242,3 +242,16 @@ This week’s challenges was sort of the same as last weeks but we were somewhat
 Again I still need to improve on myself by coordinating the group better and being responsible for the most part of our group. This is something I am working on and definitely be better at in the near future.
 
 
+
+## Week 11
+
+### What have I learnt this week?
+This week we worked on our group portfolios and was very similar to the previous week. Not much changed and it has just been fairly slow overall.
+
+
+
+## Week 12
+
+### Final Reflection
+This week marks the final week for Introduction to human-centred complex systems and reflecting upon this semester, I have definitely learnt many theories that are applicable in real life situations. My favourite theory that was introduced to me would probably be the prisoner’s dilemma because it is a really interesting way to determine an individual’s selfless nature. I find it especially intriguing that even though the most beneficial outcome would be to selfishly bait your partner into cooperating and then switching up on them at the last minute to really devalue the human intrinsic nature of altruism. Throughout this semester we also worked together in groups and although our group had a rocky start due to one member leaving, we have developed and become great classmates through working together and helping each other out when in need. I’m grateful for these supportive group members and have understood that it is quite hard to break the ice at the beginning but after that phase is past, it is a lot easier to just coordinate activities actively. This subject has also been made enjoyable with the great faculty and especially our tutor Juan who has been very nice and calm supporting the class through all 12 weeks of our learning. I will definitely remember most of the important concepts taught within this subject because of its relevance to society so overall this has been a great subject to learn and I’m happy to have this opportunity of attending this class.
+
